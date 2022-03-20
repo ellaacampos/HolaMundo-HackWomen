@@ -34,3 +34,8 @@ Taller desarrollado por el **Google Developer Student Club de la Universidad de 
 - Leer 📚
 - Pintar 🎨
 - Ver películas 🎬
+
+* Beth Bco
+- Cerámica 🏺
+- Hacer ejercicio 🏋🏼
+- Dibujar 🖍️
